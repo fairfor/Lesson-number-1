@@ -1,1 +1,0 @@
-# Lesson-number-1
